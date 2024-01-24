@@ -2,7 +2,7 @@
 
 ![IMG_4651](https://github.com/aethsmq/H24_V11_inspirations_theoret/assets/142919220/d53e3342-7598-44a2-9721-e94e79387097)
 
-photo de moi dans ma chambre
+*photo de moi dans ma chambre
 
 
 
