@@ -1,4 +1,4 @@
-#**Fiche d'Oeuvre : Jeremy Shaw**
+#Fiche d'Oeuvre : Jeremy Shaw
 
 Introduction
 
