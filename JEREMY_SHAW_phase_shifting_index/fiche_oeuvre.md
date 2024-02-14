@@ -19,8 +19,7 @@ Analyse
 ★ "Phase Shifting Index" invite les spectateurs à une introspection sur leur propre perception du monde qui les entoure. À travers des images en mouvement, des motifs répétitifs et des effets sonores enveloppants, l'installation crée une atmosphère hypnotique qui remet en question les notions de temps, d'espace et d'identité individuelle.
 
 ## Appuis Visuels!★!
-
-[picroom](https://github.com/aethsmq/H24_V11_inspirations_theoret/assets/142919220/0cd82246-6229-4c99-ae74-5c3cd19d221f)
+![picroom](https://github.com/aethsmq/H24_V11_inspirations_theoret/assets/142919220/c3e1005b-78c9-484a-8442-7c4bf72c8418)
 
 Conclusion
 
@@ -29,5 +28,4 @@ L'installation "Phase Shifting Index" de Jeremy Shaw offre une expérience immer
 Sources et Crédits Photos
 
 [Inclure ici les sources des informations utilisées et les crédits photos]
-![picroom](https://github.com/aethsmq/H24_V11_inspirations_theoret/assets/142919220/c3e1005b-78c9-484a-8442-7c4bf72c8418)
-![picroom](https://github.com/aethsmq/H24_V11_inspirations_theoret/assets/142919220/1b23a90f-f07b-49fc-a291-dadd7acc8345)
+
