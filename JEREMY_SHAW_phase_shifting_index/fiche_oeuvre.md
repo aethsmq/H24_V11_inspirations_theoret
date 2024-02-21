@@ -9,6 +9,10 @@
 
 ★ L'installation "Phase Shifting Index" se compose d'une série de 7 écran. Chaque écran montre une vidéo différente de groupe de personnes de différente époque. On le remarque par la façon que les vidéos sont filmés. Il y avait des lumières accroché au plafond et plusieurs dispositifs sonores un peut partout dans la salle. Le plancher de la salle était aussi recouver d'un tapis gris qui était agréable.
 
+## **Ce que j'ai aimé**
+
+★ à la fin de l'exposition, quand tout était calme et rose avec de beaux graphismes colorés, cela m'a apporté une paix que j'ai vraiment appréciée. Tous les écrans sont les mêmes et les lumières ont lentement commencé à éclairer la pièce que jai beaucoup aimé.
+
 
 ## Contexte de création
 
