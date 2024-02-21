@@ -20,7 +20,7 @@ Analyse
 ## Appuis Visuels!★!
 ![picroom](https://github.com/aethsmq/H24_V11_inspirations_theoret/assets/142919220/c3e1005b-78c9-484a-8442-7c4bf72c8418)
 
-Conclusion
+## **Conclusion**★!
 
 L'installation "Phase Shifting Index" de Jeremy Shaw était une belle expérience à voir. L'oeuvre ma rendue incomfortable pour une bonne partie mais, la façon dont je le vois maintenant, c'était vraiment intéressant et unique à sa manière, ce qui le rend passionnant.
 
