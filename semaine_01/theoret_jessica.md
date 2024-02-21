@@ -10,7 +10,7 @@ photo de moi dans ma chambre
 
 J'aime beaucoup tout ce qui est animation 2d et 3d. J' ai toujours voulu savoir comment faire parce que tout ce je regarde enveloppe cela.
 
-##**Ce que J'aime**
+## **Ce que J'aime**
 
 j'aime vraiment dessiner et peindre. Je joue aussi beaucoup aux jeux vidéo commee Gnehsin impact, project sekai et love and eepspcace. La musique est ma vie, j'écoute tout les gnere comme la kpop que j'adore. Je suis une personne plus introvertie donc j'aime rester tout le temps à la maison.
 
