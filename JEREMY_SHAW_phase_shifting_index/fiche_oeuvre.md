@@ -1,4 +1,5 @@
 
+
 # Fiche d'Oeuvre : Jeremy Shaw: Phase shifting Index
 ![boardpic](https://github.com/aethsmq/H24_V11_inspirations_theoret/assets/142919220/f134d75d-ea40-417b-8a24-9bb4d4e8d056)
 
@@ -30,6 +31,8 @@ Analyse
 
 ## Appuis Visuels!★!
 ![picroom](https://github.com/aethsmq/H24_V11_inspirations_theoret/assets/142919220/c3e1005b-78c9-484a-8442-7c4bf72c8418)
+![ecran de couleur](https://github.com/aethsmq/H24_V11_inspirations_theoret/assets/142919220/5e82c068-5479-4fda-9391-acbac5609721)![2 écrans](https://github.com/aethsmq/H24_V11_inspirations_theoret/assets/142919220/c8ba874d-ea16-43d3-8989-5c5748ca77d8)
+
 
 
 ## **Conclusion**★!
