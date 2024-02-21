@@ -27,9 +27,9 @@
 
 ## **Conclusion!★**
 
-★ L'installation "Phase Shifting Index" de Jeremy Shaw était une belle expérience à voir. L'oeuvre ma rendue incomfortable pour une bonne partie mais, la façon dont je le vois maintenant, c'était vraiment intéressant et unique à sa manière, ce qui le rend passionnant.
+★ L'installation "Phase Shifting Index" de Jeremy Shaw était une belle expérience à voir. L'oeuvre ma rendue incomfortable pour une bonne partie mais, la façon dont je le vois maintenant, c'était vraiment intéressant et unique à sa manière, ce qui le rend passionnant. Je pense que je devrais mieux comprendre le sens de ces arts pour rendre mon expérience plus amusante.
 
-[Inclure ici les sources des informations utilisées et les crédits photos]
+[sources utilisées et les crédits photos]
 
-toute photo sont prise par moi jessica theoret :)
+toutes les photos sont prise par moi jessica theoret :)
 
