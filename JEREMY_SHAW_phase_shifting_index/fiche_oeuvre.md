@@ -1,3 +1,4 @@
+
 # Fiche d'Oeuvre : Jeremy Shaw: Phase shifting Index
 ![boardpic](https://github.com/aethsmq/H24_V11_inspirations_theoret/assets/142919220/f134d75d-ea40-417b-8a24-9bb4d4e8d056)
 
@@ -23,7 +24,7 @@ Analyse
 
 ## Appuis Visuels!★!
 ![picroom](https://github.com/aethsmq/H24_V11_inspirations_theoret/assets/142919220/c3e1005b-78c9-484a-8442-7c4bf72c8418)
-
+<img width="414" alt="écrans" src="https://github.com/aethsmq/H24_V11_inspirations_theoret/assets/142919220/c737f6a9-988c-4ee4-8f62-589f4463a224">
 ## **Conclusion**★!
 
 L'installation "Phase Shifting Index" de Jeremy Shaw était une belle expérience à voir. L'oeuvre ma rendue incomfortable pour une bonne partie mais, la façon dont je le vois maintenant, c'était vraiment intéressant et unique à sa manière, ce qui le rend passionnant.
