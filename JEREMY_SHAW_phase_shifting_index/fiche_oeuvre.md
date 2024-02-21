@@ -6,6 +6,9 @@
 
 ★ Phase Shifting Index" est une installation artistique immersive créée par l'artiste Canadien Jeremy Shaw. On a eu l'experience d'aller voir son oeuvre à la Fonderie Darling. Cette œuvre explore les concepts de perception, de réalité altérée et de transformation de la conscience à travers une expérience unique mais aussi plutôt inconfortable.
 
+## **Jerymy shaw**
+
+
 ## Description
 
 ★ L'installation "Phase Shifting Index" se compose d'une série de 7 écran. Chaque écran montre une vidéo différente de groupe de personnes de différente époque. On le remarque par la façon que les vidéos sont filmés. Il y avait des lumières accroché au plafond et plusieurs dispositifs sonores un peut partout dans la salle. Le plancher de la salle était aussi recouver d'un tapis gris qui était agréable.
@@ -24,7 +27,7 @@ Analyse
 
 ## Appuis Visuels!★!
 ![picroom](https://github.com/aethsmq/H24_V11_inspirations_theoret/assets/142919220/c3e1005b-78c9-484a-8442-7c4bf72c8418)
-![boardpic](https://github.com/aethsmq/H24_V11_inspirations_theoret/assets/142919220/f134d75d-ea40-417b-8a24-9bb4d4e8d056)
+
 
 ## **Conclusion**★!
 
@@ -32,6 +35,5 @@ L'installation "Phase Shifting Index" de Jeremy Shaw était une belle expérienc
 
 [Inclure ici les sources des informations utilisées et les crédits photos]
 
-toute photo sont prise par moi jessica theoret :)<img width="414" alt="IMG_6007" src="https://github.com/aethsmq/H24_V11_inspirations_theoret/assets/142919220/5361a625-b58c-4d4c-9069-09c2e0d8324c">
-
+toute photo sont prise par moi jessica theoret :)
 
