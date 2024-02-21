@@ -7,14 +7,16 @@ photo de moi dans ma chambre
 
 
 ## **Intérêts dans le multimedia**
-J'aime beaucoup tout ce qui est animation 2d et 3d 
 
+J'aime beaucoup tout ce qui est animation 2d et 3d. J' ai toujours voulu savoir comment faire parce que tout ce je regarde enveloppe cela.
+
+##**Ce que J'aime**
+
+j'aime vraiment dessiner et peindre. Je joue aussi beaucoup aux jeux vidéo commee Gnehsin impact, project sekai et love and eepspcace. La musique est ma vie, j'écoute tout les gnere comme la kpop que j'adore. Je suis une personne plus introvertie donc j'aime rester tout le temps à la maison.
 
 
 ## Ce qui me plait dans l'introduction à la muséologie en TIM
-Partager avec les étudiant.e.s des expériences permettant de poser un regard large sur l'expérience vécue par les spectacteurs qui perçoivent l'oeuvre ou le dispositif dans un contexte d'exposition.  
-Apprendre à s'intéresser à toutes les composantes physiques et techniques qui interviennent dans la réception de la création.
-
+Le fait que nous allons à des sorties pour aller voir des expositions/oeuvres de différent artistes.
 
 
 
